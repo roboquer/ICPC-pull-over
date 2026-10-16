@@ -1,0 +1,1 @@
+Sección del equipo de practica conjunta de todos los miembros
